@@ -38,7 +38,7 @@ no use in talking with me anymore for your benefit.
 
 # Alright! Now that the conditions are clear, let us talk about the being that is called SᕼOᖇTY ʚ♡ɞ
 
-𐙚⋆.˚  I am 21 years old, currently single, pansexual, 167 cm tall (yes, I live in Europe). and while I am not eager to find a relationship yet, I do think the right one will be out there for me!
+𐙚⋆.˚  I am 21 years old, currently taken, pansexual, 167 cm tall (yes, I live in Europe)!
 <img width="50" height="50" alt="tumblr_295b3df734714d778ed6b19b55cdd8e8_762c36a9_75" src="https://github.com/user-attachments/assets/e21297ba-c7d0-4f22-8635-698257a21afb" />
 
 
