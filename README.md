@@ -9,8 +9,6 @@
 
 Hello! The name is Shorty, at least that's my known name since 2019! A lot of people know me through different names as well, like 
 
-𓍯𓂃 𝚃𝚠𝚒𝚡 𝄞⨾𓍢ִ໋
-
 𓍯𓂃 𝙻𝚕𝚘𝚢𝚍 𝄞⨾𓍢ִ໋
 
 𓍯𓂃 𝚁𝚊𝚕𝚜𝚎𝚒 𝄞⨾𓍢ִ໋
@@ -80,7 +78,9 @@ I do a lot of fanarts for the following, so you can understand my love for this 
 
  . ˖  ꒰𑁬 ♡ ໒꒱  ˖ . Thᥱ Amᥲzιᥒg Dιgιtᥲᥣ Cιrᥴᥙs (TADC)
 
-  . ˖  ꒰𑁬 ♡ ໒꒱  ˖ . Sonic The Hedgehog Franchise
+ . ˖  ꒰𑁬 ♡ ໒꒱  ˖ . Sonic The Hedgehog Franchise
+
+   . ˖  ꒰𑁬 ♡ ໒꒱  ˖ . Avatar (e.g Seven Havens)
 
 
 
@@ -106,6 +106,10 @@ I do a lot of fanarts for the following, so you can understand my love for this 
 ᨳິ 𓈒 Rᥲᥣsᥱι / Deltarune
 
 ᨳິ 𓈒 Victor Grantz / Identity V
+
+ᨳິ 𓈒  Jae / Avatar Seven Havens
+
+ᨳິ 𓈒  Tanjirou/Shinobu // Demon Slayer
 
 My own analysis  to this (because I think it's important to understand yourself)
 
@@ -147,7 +151,7 @@ Their passion for something and undenieable kindness, but also confidence for th
 
 <img width="135" height="154" alt="7AE5EAD9-DE0A-46ED-BE90-02A0EE41403B" src="https://github.com/user-attachments/assets/edcaec8e-c7e6-4844-aa88-8354758b0724" />
 
-
+But my absolute favourite person is J ꒰𑁬 ♡ ໒꒱
 
 
 <img width="1280" height="107" alt="tumblr_dc4c06c540a0321e309da7775e3b50c7_dc3fdc67_1280" src="https://github.com/user-attachments/assets/26aa4f8c-4e6f-4847-829e-6ec870728082" />
